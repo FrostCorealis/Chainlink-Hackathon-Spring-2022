@@ -4,7 +4,7 @@ Einstein said, "Imagination is more important than knowledge, for knowledge is l
 
 Imagination opens our minds to possibilities, and is the fertile ground in which our creativity can grow & flourish.
 
-But...just like a plant needs water & nutrients, imagination needs knowledge in order to...well...coalesce into the structure (the stem, the trunk, the foundation) for what we're building...or to support that flower that'll bloom...definitely mixing metaphors here.
+But...just like a plant needs water & nutrients, imagination needs knowledge in order to...well...coalesce into the structure (the stem, the trunk, the foundation) for what we're building...or to support the flower that'll bloom...definitely mixing metaphors here.
 
 The point is, without deep knowledge of HOW to do all the things we KNOW are possible, we can't build as big as we dream.  Knowledge matters.  A lot.  We've learned so much in the past month (the past year!) but there's much more that we need to experience & explore.  
 
